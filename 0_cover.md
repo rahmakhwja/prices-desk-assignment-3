@@ -2,7 +2,7 @@
 
 Course: ICA-F26 – The Prices Desk
 
-Assignment: Week 4 
+Assignment: Week 3 
 
 Student Name: rahma khawaja
 
